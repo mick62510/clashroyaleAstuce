@@ -1,0 +1,2 @@
+# clashroyaleAstuce
+trainnning 
